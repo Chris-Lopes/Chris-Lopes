@@ -4,7 +4,7 @@
 <br>
 
 ---
-[![](https://visitcount.itsvg.in/api?id=Chris-Lopes&icon=5&color=0)](https://visitcount.itsvg.in)
+[![](https://visitcount.itsvg.in/api?id=Chris-Lopes&icon=5&color=12)](https://visitcount.itsvg.in)
 
 
 
